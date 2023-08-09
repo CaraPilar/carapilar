@@ -9,7 +9,7 @@ When I'm not busy coding , I enjoy volunteering, spending time with family, draw
 I am currently open for work.
 
 ### Connect with me!
-[Facebook](https://www.facebook.com/carapilartech)  |  [Twitter](https://www.twitter.com/CaraPilar_)  |  [Medium ](https://carapilar.medium.com/)  |  [Github](https://www.github.com/CaraPilar)
+[LinkedIn](https://www.linkedin.com/in/carapsmith/)  |  [Medium](https://carapilar.medium.com/)  |  [Github](https://www.github.com/CaraPilar)  |  [Facebook](https://www.facebook.com/carapilartech)  |  [Twitter](https://www.twitter.com/CaraPilar_) 
 
 Visit my site: [carapilar.com](https://www.carapilar.com)
 
